@@ -1,1 +1,0 @@
-# squalettimc-ticket
